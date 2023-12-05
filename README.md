@@ -12,19 +12,19 @@
   
 </div>
 
-> Who even are you?
+> Who are you?
 
 Good question! I'm just a girl trying to survive and make the world a better place 😊
 
-> What are you doing?
+> What are you doing here?
 
 I don't know 🤷‍♀️ I mainly go with the flow and make the best out of every situation haha
 
-> Get out of my house!!! How did you even get in????? This is the 16th floor 💀
+> How did you get inside my house?
 
-Awwwwwww 😭 Just as it was getting fun 😢
+Don't worry about ittttt 😊
 
-I live by a single quote:
+The quote I live by everyday:
 > Sometimes, I deam about cheese
 > 
 > _2004, Random Half-Life 2 Rebel_
@@ -34,6 +34,11 @@ I live by a single quote:
 We barely met yet you're already trying to get my phone number, aren't you? 😎
 
 You can find me here:
-- [GitHub](https://github.com/mia-kiwi/mia-kiwi)
+- [GitHub](https://github.com/mia-kiwi/mia-kiwi) (Who would've guessed?!)
+- [Instagram](https://www.instagram.com/coulditbemia)
+- [Discord](https://discordapp.com/users/996427589868593273)
+- [Figma](https://www.figma.com/@miakiwi)
+- [Spotify](https://open.spotify.com/user/31kq4nsotefis2pem6436irytxsm)
+- [Ironman Software Forums](https://forums.ironmansoftware.com/u/mia.kiwi)
 
 _That's it. That's the extent of my online presence_
